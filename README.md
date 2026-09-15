@@ -2,8 +2,6 @@
 
 </br>
 
-I am a 14-year-old junior high school student in China, a fan of **Minecraft Bedrock Edition**, and a developer and service owner.
-
 </br>
 
 ## **SKILLS & TOOLS**  
